@@ -1,4 +1,4 @@
-Oi, eu me chamo Maria Fernanda, tenho 15 anos e estou no 1 ano do Ensino Médio, estudo no colégio Francico Neves Filho em São João do Triunfo-PR.
+Oi, eu me chamo Maria Fernanda, tenho 16 anos e estou no 3 ano do Ensino Médio, estudo no colégio Francico Neves Filho em São João do Triunfo-PR.
  
  Gosto de utilizar o scratch para programar por ser mais fácil, e entendo um pouso do básico do Inglês, mesmo não sendo fluente, aprendi o idioma jogando jogos, ouvindo e vendo a tradução de músicas, e assistindo gameplays com legenda.
  
